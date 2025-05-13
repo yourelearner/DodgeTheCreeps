@@ -1,1 +1,1 @@
-To watch the Video Presentation, you must click the file then download it. Click the VideoPresentation, then click View Raw.
+Watch the video presentation on youtube https://youtu.be/HsJ6sCf8mBs
